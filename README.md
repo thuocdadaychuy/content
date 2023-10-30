@@ -6,7 +6,7 @@ Dạ dày, cùng với dạ con (ruột non) và dạ tràng (ruột già), tạ
 
 Tuy nhiên, nhiều người trên khắp thế giới phải đối mặt với các vấn đề dạ dày như viêm loét dạ dày, bệnh trào ngược dạ dày, viêm niêm mạc dạ dày, và nhiều triệu chứng khác. Những triệu chứng này có thể gây đau đớn, buồn nôn, nôn mửa, và thậm chí gây ra vấn đề về sức kháng dạ dày.
 
-II. Giới thiệu về [thuốc dạ dày chữ Y](https://starity.hu/profil/392702-thuocdadaychuy/) - "Chữa dạ dày bằng thiên nhiên"
+II. Giới thiệu về [thuốc dạ dày chữ Y](http://gendou.com/user/yumangelvn) - "Chữa dạ dày bằng thiên nhiên"
 Yumangel là một sản phẩm được phát triển để giúp giảm đi các triệu chứng của bệnh dạ dày và duodenitis. Điều đặc biệt về Yumangel là nó được làm hoàn toàn từ các thành phần tự nhiên, và không chứa hóa chất hay thành phần có thể gây hại cho dạ dày.
 
 1. Thành phần chính của Yumangel
@@ -16,7 +16,7 @@ Chiết xuất từ cây cỏ ngọt (Stevia): Stevia không chỉ là một lo�
 
 Chiết xuất từ cây lúa mạch nha (Oat Bran Extract): Oat bran là một nguồn chất xơ giàu, giúp tạo ra một lớp bảo vệ cho niêm mạc dạ dày, đồng thời cung cấp dinh dưỡng cho cơ thể.
 
-2. [cách dùng yumangel](https://glose.com/activity/6506cf9dcaf69f113d9e1dc1)
+2. [cách dùng yumangel](https://guides.co/a/yumangel-thuc-d-dy-ch-y/)
 Yumangel là một loại gel uống dạ dày, dễ dàng tiêu thụ và hấp thụ vào cơ thể. Khi bạn sử dụng Yumangel, nó sẽ tạo ra một lớp gel bảo vệ niêm mạc dạ dày, giúp làm dịu sự kích thích và giảm việc tiết acid dạ dày. Điều này giúp giảm triệu chứng đau đớn, nôn mửa và buồn nôn.
 
 III. Lợi ích của việc sử dụng Yumangel
